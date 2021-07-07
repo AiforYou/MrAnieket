@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AiforYou
+- 👋 Hi, I’m @Anieket 
 - 👀 I’m interested in Acting
 - 🌱 I’m currently learning Developers option by own and Sports Nutrition by academy and understanding the actor in me
 - 💞️ I’m looking to collaborate on anything suitable
